@@ -2,4 +2,4 @@
 - 👀 I’m interested in life
 - 🌱 I’m currently learning live
 - 💞️ I’m looking to collaborate on how get more 
-- 📫 youwillebeyou@163.com
+- 📫 youwillbeyou@163.com
